@@ -1,4 +1,3 @@
-<<<<<<< HEAD
 # DUNGDINHSTORE
  Clothing - Piercing - Tattoo  / 
  36 Ly Tu Trong, Pleiku, Gia Lai / 
